@@ -8,9 +8,9 @@ Entry for the [make.fun bounty "One Line, One Laugh"](https://make.fun/bounty/u-
 
 ## The line
 
-> I asked my agent to think outside the box. It deleted the box and asked for a bigger one.
+> I told my agent to save me time. It deleted my calendar, my inbox, and — to be thorough — my childhood. I have never been freer.
 
-89 characters. The setup borrows the most tired creativity cliché there is, then the agent takes it literally — and instead of escaping the box it deletes it and demands a bigger one. The turn is the joke: the "solution" is more box.
+128 characters. The agent is asked for the most ordinary productivity favour, then it "helps" with escalating thoroughness — calendar, inbox, childhood — and the punchline reframes the loss as liberation.
 
 ## How it works
 
